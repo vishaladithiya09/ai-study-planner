@@ -1,0 +1,2 @@
+# ai-study-planner
+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
